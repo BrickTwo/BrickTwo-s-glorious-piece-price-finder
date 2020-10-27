@@ -1,1 +1,0 @@
-We are a wonderful team of crazy visionaries.

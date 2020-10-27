@@ -1,1 +1,0 @@
-Das ist schwierig zu erklären. Viele Leute finden unsere Seite einfach großartig.
